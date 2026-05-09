@@ -13,7 +13,7 @@ I am a dedicated problem-solver, passionate about creatively engineering solutio
 ### Let's Connect
 
 * **LinkedIn:** [Eden Avrahami](https://www.linkedin.com/in/eden--avrahami/)
-* **Itch.io:** [edenavra.itch.io](https://edenavra.itch.io/)
+* **Itch.io:** [edenavrahami.itch.io](https://edenavra.itch.io/)
 
 ---
 *Check out my highlighted projects below!* 👇
